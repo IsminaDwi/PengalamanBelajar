@@ -11,3 +11,8 @@ Merupakan progres dalam belajar
 Merupakan progres dalam belajar
 - Hampir menyelesaikan semua pekerjaan
 - Memasukkan token selanjutnya untuk belajar selanjutnya
+
+**Tanggal 12 Februari 2022 (100%)**
+merupakan laporan akhir belajar
+- SELESAI
+- yuhuuu
